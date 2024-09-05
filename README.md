@@ -1,4 +1,4 @@
-## Hi there 👋
+## Corinthians has the biggest world cup in Brazil 👋
 
 
 **Joao-Gabriel-hue/Joao-Gabriel-hue** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
